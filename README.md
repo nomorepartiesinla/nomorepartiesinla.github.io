@@ -1,1 +1,0 @@
-# nomorepartiesinla.github.io
